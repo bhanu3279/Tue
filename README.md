@@ -1,2 +1,1 @@
 BHANU KRISHNA
-Banglore
